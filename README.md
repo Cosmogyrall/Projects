@@ -1,1 +1,1 @@
-These are some projects i have worked(am working) on !
+These are some projects i am currently working or have worked on !
